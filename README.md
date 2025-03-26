@@ -1,2 +1,0 @@
-# keithgalli
-Github profile README
